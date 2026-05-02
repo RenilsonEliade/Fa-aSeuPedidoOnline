@@ -1,1 +1,1 @@
-Code Pedidos
+FAÇA SEU PEDIDO E RECEBA AI NA SUA CASA!
